@@ -4,3 +4,4 @@ Hi, I’m @Meter04
 - I’m starting some coding (and not) project
 - How to reach me? mine e-mail is cotillimattia@gmail.com 
 - Pronouns: he/him
+- Italian
